@@ -1,3 +1,5 @@
+[Get Involved](https://github.com/Patty-4-Morrisville/Patty-4-Morrisville/)
+
 # Meet Patty Cheng
 
 **Patty Cheng is a problem-solver who has dedicated her life to smart planning and fiscal responsibility.**
