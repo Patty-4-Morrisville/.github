@@ -1,4 +1,4 @@
-[Get Involved](https://github.com/Patty-4-Morrisville/Patty-4-Morrisville/) | [Discussions](https://github.com/orgs/Patty-4-Morrisville/discussions) | [Chip In](https://patty4morrisville.com/)
+[Learn More About Her Platform](https://github.com/Patty-4-Morrisville/Patty-4-Morrisville/) | [Discussions](https://github.com/orgs/Patty-4-Morrisville/discussions) | [Chip In](https://patty4morrisville.com/)
 
 # Meet Patty Cheng
 
