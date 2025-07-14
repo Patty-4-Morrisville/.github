@@ -1,4 +1,4 @@
-[Get Involved](https://github.com/Patty-4-Morrisville/Patty-4-Morrisville/)
+[Get Involved](https://github.com/Patty-4-Morrisville/Patty-4-Morrisville/) [Forum](https://github.com/orgs/Patty-4-Morrisville/discussions)
 
 # Meet Patty Cheng
 
